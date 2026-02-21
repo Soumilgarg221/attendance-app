@@ -1,1 +1,0 @@
-#soumil ki mkc
